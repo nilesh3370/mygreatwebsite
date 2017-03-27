@@ -1,6 +1,6 @@
                                           WELCOME TO MY PERSONAL WEBPAGE
 
-  I have created this personal webpage to help my friends to buy MI Phones in one click.
+  I have created this personal webpage to help my friends to buy MI Phones in flash sale in one click.
   
   To buy mobile you need to do following steps:
   
